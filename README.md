@@ -1,4 +1,4 @@
-# Jilles osu edits
+# BOSNIATRUCKER13 EDITS
 osu skins
 
 if you are searching for other skins dm me on osu/discord
